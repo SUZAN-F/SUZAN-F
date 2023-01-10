@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SUZAN-F
 - 👀 I’m interested in music and dance 
-- 🌱 I’m currently learning BIT
+- 🌱 I’m currently learning Business Information Technology
 - 💞️ I’m looking to collaborate on technology
 - 📫 Leave a message any time
 
